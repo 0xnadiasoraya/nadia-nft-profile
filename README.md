@@ -1,2 +1,2 @@
-# nadia nft profile
+# nadia nft profiles
 - 0xnadia (1).jpg
